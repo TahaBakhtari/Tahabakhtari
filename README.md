@@ -8,6 +8,7 @@
 - 📝 I regularly write articles on [https://x.com/TahaBakhtari](https://x.com/TahaBakhtari)
 
 - 📫 How to reach me **tahabakhtari88@gmail.com**
+- 💬 Chat with me : **https://t.me/tahabakhtari**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
