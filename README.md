@@ -9,6 +9,7 @@
 
 - 📫 How to reach me **tahabakhtari88@gmail.com**
 - 💬 Chat with me : **https://t.me/tahabakhtari**
+- 🤖 I make videos about AI : **https://www.youtube.com/@TahaBakhtariAI**
 
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=tahabakhtari&show_icons=true&locale=en" alt="tahabakhtari" /></p>
 
